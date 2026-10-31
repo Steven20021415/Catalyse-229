@@ -3,7 +3,7 @@ Catalyse 229 est un programme en ligne pour apprendre, partager et grandir ensem
 
 1️⃣Échanges de connaissances (novembre) : outils, stratégies et savoirs pour avancer. 
 
-2️⃣ Échanges d'expérience (décembre) : Pré-Catalyse, les processus cachés derrière les réussites.  
+2️⃣ Échanges d'expérience (décembre) : Les processus cachés derrière les réussites.  
 
 Un rendez-vous que nous voulons faire vivre chaque année.
 
